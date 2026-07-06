@@ -1,4 +1,4 @@
-# 
+# Leve DisplayFusion scripts para Mac OS | Instantâneo DisplayFusion scripts para PC Windows. Com perfis de limpeza personalizados e desfragmentacao de disco — otimizado para máximo desempenho em cada plataforma.
 
 
 
